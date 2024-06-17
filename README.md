@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **cmanirudh03@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1FVO4_1kGM9i8npLTwmLsI_o3fv4l5fkJ/view?usp=sharing](https://drive.google.com/file/d/1FVO4_1kGM9i8npLTwmLsI_o3fv4l5fkJ/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1FVO4_1kGM9i8npLTwmLsI_o3fv4l5fkJ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
